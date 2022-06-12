@@ -1,5 +1,3 @@
 # Welcome to AXE Studios!
-Yes, thats what its called.
-
-
-...what?
+My scratch username wasn't exactly planned well.
+But this probably was!
